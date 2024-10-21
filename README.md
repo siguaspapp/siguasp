@@ -1,13 +1,12 @@
 # :sparkles::sparkles:丝瓜视频app最新地址发布页面:sparkles::sparkles:
 
- :heart: :point_right: 【最新地址】 ：https://github.com/dizhifabuyetop/dizhifabu.git#4hdz3 (点击打开，即可观看，看完记得收藏)
+ :heart: :point_right: 【丝瓜视频最新地址】 ：https://github.com/dizhifabuyetop/dizhifabu.git#siguasp1 (点击打开，即可观看，看完记得收藏)
  ------
-:point_right: 【最新地址】 ：https://github.com/dizhifabuyetop/dizhifabu.git#4hdz3 (点击打开，即可观看，看完记得收藏)
+:point_right: 【丝瓜视频最新地址】 ：https://github.com/dizhifabuyetop/dizhifabu.git#siguasp2 (点击打开，即可观看，看完记得收藏)
  ------
-【最新地址】 ：https://github.com/dizhifabuyetop/dizhifabu.git#4hdz3 (点击打开，即可观看，看完记得收藏)
+【丝瓜视频最新地址】 ：https://github.com/dizhifabuyetop/dizhifabu.git#siguasp3 (点击打开，即可观看，看完记得收藏)
  ------
-https://github.com/dizhifabuyetop/dizhifabu.git#4hdz3 (点击打开，即可观看，看完记得收藏)
- ------
+
 
 丝瓜视频为爱而生app
 丝瓜app官网入口
